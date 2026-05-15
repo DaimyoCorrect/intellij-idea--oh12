@@ -1,4 +1,4 @@
-# 
+# rare JetBrains IntelliJ IDEA for PC | JetBrains IntelliJ IDEA for Windows Workflow | code-formatting + code-navigation offers the most advanced JetBrains IntelliJ IDEA for PC |
 
 
 
